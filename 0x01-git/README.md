@@ -1,1 +1,2 @@
-#DO HARD THINGS
+#DO HARD THINGS-Continue doing hard things
+
